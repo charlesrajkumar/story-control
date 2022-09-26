@@ -1,1 +1,2 @@
-once apon a time there was a greedy man. he went to buy a chicken from the shopkeeper. it layed golden eggs.
+once apon a time there was a greedy man. he went to buy a chicken from the shopkeeper. it layed golden eggs. 
+then he got greedy and killed the eggs thinking he would be rich at once but he only found 1 egg.
